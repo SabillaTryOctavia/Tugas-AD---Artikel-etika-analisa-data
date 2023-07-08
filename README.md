@@ -1,0 +1,1 @@
+# Tugas-AD---Artikel-etika-analisa-data
